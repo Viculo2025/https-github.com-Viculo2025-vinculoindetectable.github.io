@@ -1,1 +1,0 @@
-# vinculoindetectable.github.io
